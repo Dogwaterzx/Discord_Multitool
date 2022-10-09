@@ -5,7 +5,7 @@ If you want to buy tokens seperately, I am hosting an amazing deal that beats an
 
 # Event:
   Buy 1 token for $0.20, get 2 free!
-  
+  Contact me on Discord @ Zpic#2054 in order to buy.
 
 # Free tokens:
   MzI5NDUyMjk5NTAzMzQ4ODcZ.TvotCh.h3Bf9gqNCmW5reSzQjFiXxu_1no
